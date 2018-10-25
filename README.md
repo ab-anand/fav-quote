@@ -9,3 +9,6 @@ Mirko: Success is not final, failure is not fatal: it is the courage to continue
 
 > “Programs must be written for people to read, and only incidentally for machines to execute.”
 
+Samuel B. Woniowei: "When You Walk Up To Opportunity’s Door: Don’t Knock It. Kick That Bitch In, Smile and Introduce Yourself" 
+                      - Dwayne Johnson 
+
