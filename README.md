@@ -11,4 +11,6 @@ Mirko: Success is not final, failure is not fatal: it is the courage to continue
 
 Samuel B. Woniowei: "When You Walk Up To Opportunity’s Door: Don’t Knock It. Kick That Bitch In, Smile and Introduce Yourself" 
                       - Dwayne Johnson 
+                   
+Always look for the fool in the deal. If you don't find one, it's you. ~ Mark Cuban
 
