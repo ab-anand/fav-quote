@@ -14,3 +14,4 @@ Samuel B. Woniowei: "When You Walk Up To Opportunity’s Door: Don’t Knock It.
                    
 Always look for the fool in the deal. If you don't find one, it's you. ~ Mark Cuban
 
+Amir R Muntasser: "I haven't seen a fight this exciting since 1973 when Mohammed Ali fought a 100 foot tall robot Joe Frasier. Now my memory isn't what it used to be, but I'm pretty sure the entire world was destroyed" - George Foreman (Futurama)
