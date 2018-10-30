@@ -3,6 +3,9 @@
 Add ur name and your fav. Quote
 
 
+[Muhammad Fiaz Ansari]("Don't stop when you'r tired. STOP when you'r DONE")
+
+
 Ozren: &nbsp;&nbsp;&nbsp; If you can dream it, you can do it. &nbsp;&nbsp;&nbsp; *Walt Disney*
 
 
