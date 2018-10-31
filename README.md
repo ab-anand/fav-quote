@@ -30,6 +30,9 @@ Tushar: The lesson of history is that no one learns - *Steven Erikson*
 
 Tushar: Doubt is only removed by action. If you’re not working then that’s where doubt comes in. - *Conor McGregor*
 
+
+Tushar: The primary, the cardinal attribute of leadership is professional knowledge and professional competence. Professional knowledge has to be acquired the hard way. It is continuous study and you never acquire it in today's fast-moving technological world that you are living in. You have to keep up with your profession whatever you are in.  *Sam Manekshaw*
+
 Tushar: I’ve always said that if my son thinks of me as one of his idiot friends, I’ve succeeded as a dad. - *Phil Dunphy*
 
 Tushar : A champion is defined by the adversity he overcomes. - *Anderson Silva*
