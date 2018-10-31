@@ -29,3 +29,5 @@ Tushar: Doubt is only removed by action. If you’re not working then that’s w
 Tushar: I’ve always said that if my son thinks of me as one of his idiot friends, I’ve succeeded as a dad. - *Phil Dunphy*
 
 Tushar : A champion is defined by the adversity he overcomes. - *Anderson Silva*
+
+Tushar: We can evade reality, but we cannot evade the consequences of evading reality. - *Ayn Rand*
