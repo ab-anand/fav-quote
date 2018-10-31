@@ -25,3 +25,5 @@ Amir R Muntasser: "I haven't seen a fight this exciting since 1973 when Mohammed
 Tushar: The lesson of history is that no one learns - *Steven Erikson*
 
 Tushar: Doubt is only removed by action. If you’re not working then that’s where doubt comes in. - *Conor McGregor*
+
+Tushar: I’ve always said that if my son thinks of me as one of his idiot friends, I’ve succeeded as a dad. - *Phil Dunphy*
