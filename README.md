@@ -6,7 +6,11 @@
 
 ---
 
-> Juan: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. **Archimedes**
+> Mohit: Life is 10% what happens to you and 90% how you respond to it. - **Charles Swindoll**
+
+--- 
+
+> Juan: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. - **Archimedes**
 
 ---
 
@@ -22,7 +26,7 @@
 
 ---
 
-> Unknown: “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
+> “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
 
 --- 
 
@@ -30,7 +34,7 @@
    
 ---   
 
-> Unknown: Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
+> Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
 
 ---
 
@@ -62,9 +66,7 @@
 
 ---
 
-> Abhinav Anand: Empty your mind. Be formless, shapeless, like water. You put water into a cup, it becomes the cup. - **Bruce Lee**
-
-Toward the positive life :heart:
+Toward the postive life :heart:
 
 
 **Contribute and Grow**
