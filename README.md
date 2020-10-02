@@ -1,4 +1,4 @@
-## Favorite Quotes
+# Favorite Quotes
 
 ##### A Collection of your **Favorite Quotes**
 
