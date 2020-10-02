@@ -1,4 +1,6 @@
-# fav-quote
+## Favorite Quotes
+
+##### A Collection of your **Favorite Quotes**
 
 ## Add Your Fav Quote with Your Signature :feet:
 
