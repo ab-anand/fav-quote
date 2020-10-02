@@ -1,6 +1,9 @@
-# fav-quote
+## Favorite Quotes
 
-Add ur name and your fav. Quote
+##### A Collection of your **Favorite Quotes**
+
+---
+
 
 
 Juan: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. *Archimedes*
