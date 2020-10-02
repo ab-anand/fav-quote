@@ -39,3 +39,4 @@ Tushar : A champion is defined by the adversity he overcomes. - *Anderson Silva*
 
 Tushar: We can evade reality, but we cannot evade the consequences of evading reality. - *Ayn Rand*
 
+> Abhinav Anand: Empty your mind. Be formless, shapeless, like water. You put water into a cup, it becomes the cup. - **Bruce Lee**
