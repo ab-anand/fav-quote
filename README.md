@@ -22,7 +22,7 @@
 
 ---
 
-> “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
+> Unknown: “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
 
 --- 
 
@@ -30,7 +30,7 @@
    
 ---   
 
-> Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
+> Unknown: Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
 
 ---
 
@@ -62,7 +62,9 @@
 
 ---
 
-Toward the postive life :heart:
+> Abhinav Anand: Empty your mind. Be formless, shapeless, like water. You put water into a cup, it becomes the cup. - **Bruce Lee**
+
+Toward the positive life :heart:
 
 
 **Contribute and Grow**
