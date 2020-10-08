@@ -72,7 +72,11 @@
 
 > Unknown: I know very little about acting. I’m just an incredibly gifted faker. - **RDJ**
 
+---
 
+> Hardik: Once you start working on something don’t be afraid of failure and don’t abandon it. People who work sincerely are the happiest. - **Chanakya**
+
+---
 Toward the positive life :heart:
 
 
