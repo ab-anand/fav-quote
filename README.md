@@ -77,6 +77,10 @@
 > Hardik: Once you start working on something don’t be afraid of failure and don’t abandon it. People who work sincerely are the happiest. - **Chanakya**
 
 ---
+
+> Hardik: Wanting to work is so rare a merit that it should be encouraged. - **Abraham Lincoln**
+
+---
 Toward the positive life :heart:
 
 
