@@ -6,7 +6,11 @@
 
 ---
 
-> Juan: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. **Archimedes**
+> Mohit: Life is 10% what happens to you and 90% how you respond to it. - **Charles Swindoll**
+
+--- 
+
+> Juan: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. - **Archimedes**
 
 ---
 
@@ -61,7 +65,6 @@
 > Tushar: We can evade reality, but we cannot evade the consequences of evading reality. - **Ayn Rand**
 
 ---
-
 > Abhinav Anand: Empty your mind. Be formless, shapeless, like water. You put water into a cup, it becomes the cup. - **Bruce Lee**
 
 ---
@@ -81,7 +84,11 @@
 > Hardik: Wanting to work is so rare a merit that it should be encouraged. - **Abraham Lincoln**
 
 ---
-Toward the positive life :heart:
+
+Toward a positive life :heart:
+
+
+
 
 
 **Contribute and Grow**
