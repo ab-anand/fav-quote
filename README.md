@@ -26,7 +26,7 @@
 
 ---
 
-> “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
+> Unknown: “Programs must be written for people to read, and only incidentally for machines to execute.” - **unknown**
 
 --- 
 
@@ -34,7 +34,7 @@
    
 ---   
 
-> Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
+> Unknown: Always look for the fool in the deal. If you don't find one, it's you. ~ **Mark Cuban**
 
 ---
 
@@ -65,10 +65,6 @@
 > Tushar: We can evade reality, but we cannot evade the consequences of evading reality. - **Ayn Rand**
 
 ---
-
-
-Toward the postive life :heart:
-
 > Abhinav Anand: Empty your mind. Be formless, shapeless, like water. You put water into a cup, it becomes the cup. - **Bruce Lee**
 
 ---
@@ -88,7 +84,10 @@ Toward the postive life :heart:
 > Hardik: Wanting to work is so rare a merit that it should be encouraged. - **Abraham Lincoln**
 
 ---
-Toward the positive life :heart:
+
+Toward a positive life :heart:
+
+
 
 
 
