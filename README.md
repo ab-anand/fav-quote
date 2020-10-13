@@ -85,7 +85,7 @@
 
 ---
 
-Toward a positive life :heart:
+Towards a positive life :heart:
 
 
 
