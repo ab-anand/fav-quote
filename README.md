@@ -85,6 +85,10 @@
 
 ---
 
+> Unknown: “Get busy living or get busy dying.” — **Stephen King**
+
+---
+
 Towards a positive life :heart:
 
 
