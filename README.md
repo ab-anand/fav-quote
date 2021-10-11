@@ -97,6 +97,13 @@
 
 ---
 
+> Unknown: "People's lives don't end when they die. It ends when they lose faith." - **Itachi Uchiha**, 'Naruto'.
+
+---
+
+> Unknown: “Teachings that do not speak of pain have no meaning, for humankind cannot gain anything in return." - **Itachi Uchiha**, 'Naruto'.
+
+---
 
 Towards a positive life :heart:
 
@@ -104,4 +111,4 @@ Towards a positive life :heart:
 
 
 
-**Contribute and Grow**
+**Learn & Grow**
