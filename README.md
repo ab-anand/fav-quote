@@ -109,6 +109,10 @@
 
 ---
 
+> Unknown: “If you don’t share someone’s pain, you can never understand them.” – **Nagato**, 'Naruto'
+
+---
+
 Towards a positive life :heart:
 
 
