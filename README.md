@@ -93,6 +93,12 @@
 
 ---
 
+> Unknown: "People's lives don't end when they die. It ends when they lose faith." - **Itachi Uchiha**, 'Naruto'.
+---
+
+> Unknown: “If you don’t share someone’s pain, you can never understand them.” – **Nagato**, 'Naruto'.
+---
+
 Towards a positive life :heart:
 
 
