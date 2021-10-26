@@ -93,10 +93,20 @@
 
 ---
 
-> Unknown: "People's lives don't end when they die. It ends when they lose faith." - **Itachi Uchiha**, 'Naruto'.
+> Pratyush:  A dream is not that which you see while sleeping, it is something that does not let you sleep. - **Dr. APJ Abdul Kalam**
+
 ---
 
-> Unknown: “If you don’t share someone’s pain, you can never understand them.” – **Nagato**, 'Naruto'.
+> Unknown: "People's lives don't end when they die. It ends when they lose faith." - **Itachi Uchiha**, 'Naruto'.
+
+---
+
+> Unknown: “Teachings that do not speak of pain have no meaning, for humankind cannot gain anything in return." - **Itachi Uchiha**, 'Naruto'.
+
+---
+
+> Unknown: “Yesterday I was clever, so I wanted to change the world. Today I am wise, so I am changing myself." - **Rumi**
+
 ---
 
 Towards a positive life :heart:
@@ -105,4 +115,4 @@ Towards a positive life :heart:
 
 
 
-**Contribute and Grow**
+**Learn & Grow**
