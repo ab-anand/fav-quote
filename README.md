@@ -113,6 +113,10 @@
 
 ---
 
+> Unknown: “The concept of hope is nothing more than giving up. A word that holds no true meaning.” – **Madara Uchiha**, 'Naruto'
+
+---
+
 Towards a positive life :heart:
 
 
