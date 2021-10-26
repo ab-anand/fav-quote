@@ -117,6 +117,11 @@
 
 ---
 
+> Unknown: “The longer you live… The more you realize that reality is just made of pain, suffering and emptiness.” – **Madara Uchiha**, 'Naruto'
+
+---
+
+
 Towards a positive life :heart:
 
 
