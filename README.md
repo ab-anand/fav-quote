@@ -121,6 +121,14 @@
 
 ---
 
+> Unknown: “The longer you live… The more you realize that reality is just made of pain, suffering and emptiness.” – **Madara Uchiha**, 'Naruto'
+
+---
+
+> Unknown: “Rejection is a part of any man’s life. If you can’t accept and move past rejection, or at least use it as writing material – you’re not a real man.” – **Jiraiya**, 'Naruto'
+
+---
+
 
 Towards a positive life :heart:
 
