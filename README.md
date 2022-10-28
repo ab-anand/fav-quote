@@ -129,6 +129,9 @@
 
 ---
 
+> Unknown: "In The Grand Scheme Of Time, You're Nothing More Than A Trivial Footnote." - **Orochimaru**, 'Naruto'
+
+
 
 Towards a positive life :heart:
 
