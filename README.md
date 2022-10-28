@@ -141,7 +141,7 @@
 
 ---
 
-
+> Unknown: “When a man learns to love, he must bear the risk of hatred.” – **Madara Uchiha**, 'Naruto'
 
 Towards a positive life :heart:
 
