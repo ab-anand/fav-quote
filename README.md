@@ -131,6 +131,12 @@
 
 > Unknown: "In The Grand Scheme Of Time, You're Nothing More Than A Trivial Footnote." - **Orochimaru**, 'Naruto'
 
+---
+
+> Unknown: "Hate Only Gives Birth To More Hate" - **Orochimaru**, 'Naruto'
+
+---
+
 
 
 Towards a positive life :heart:
