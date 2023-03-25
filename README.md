@@ -6,6 +6,10 @@
 
 ---
 
+> Sunil: The master has failed more times than the beginner has even tried. - **Stephen McCranie**
+
+---
+
 > Mohit: Life is 10% what happens to you and 90% how you respond to it. - **Charles Swindoll**
 
 --- 
